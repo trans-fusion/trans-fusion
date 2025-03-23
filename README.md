@@ -1,5 +1,5 @@
 - 👋 Hi.
-- 👀 I’m play bass guitar.
+- 👀 I play bass guitar.
 - 🌱 Solder me closer. 
 - 📫 How to contact me: Here.
 - 😄 She/her
